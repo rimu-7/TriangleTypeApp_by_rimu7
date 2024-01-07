@@ -1,0 +1,1 @@
+# TriangleTypeApp_by_rimu7
